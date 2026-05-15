@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with advanced nft sniper bot | auto-sell + royalty-calculator, the #1 nft sniper bot. Includes auto-sell and royalty-calculator for a faster and more
 
 
 
